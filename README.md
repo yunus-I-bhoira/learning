@@ -1,1 +1,1 @@
-# learning new thingee
+# learning new things
